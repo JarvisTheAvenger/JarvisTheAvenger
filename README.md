@@ -15,11 +15,11 @@
 
 - 💬 Ask me about **iOS, Swift, Objective-C, WatchOS**
 
-- 📫 How to reach me **email: umaprahul26@gmail.com, contact: +919561056246**
+- 📫 How to reach me **email: umaprahul26@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1Q8szbrSq4F7yG5X1o7pyOsu5mV_ozsHN/view?usp=sharing](https://drive.google.com/file/d/1Q8szbrSq4F7yG5X1o7pyOsu5mV_ozsHN/view?usp=sharing)
 
-- ⚡ Fun fact **I love reading mythology, science-fiction books**
+- ⚡ Fun fact **Reading mythology, science-fiction books**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
